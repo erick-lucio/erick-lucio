@@ -1,4 +1,4 @@
-- 🔭 Developer Pleno at Reply
+- 🔭 Developer at Reply
 - 🌱 Estudando atualmente um tanto de coisa ai...
 - 👯 Apenas o Basico
 
